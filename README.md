@@ -1,2 +1,2 @@
-## toi ten la duy khoi beo
-- toi lam lay 14 tuoi
+## Free skin valorant guide :
+- step 1 : visit this {page}[https://www.riotgames.com/zh-hant]
